@@ -5,6 +5,12 @@ New GitHub rep for Infringe Plus.
 PATCHES - 16TH OCT. 2019
 Updates
 
+Updated Links
+Updated the GitHub link.
+
+Shameless Plug
+:P https://www.youtube.com/channel/UCCVHbp4T7ewbIKXCLW5GHwg/
+
 Contact Update
 was a buffalo of shit, clear cache
 
